@@ -1,4 +1,4 @@
-👋 Hi, I’m @PrakritiRawal
+                                                                    👋 Hi, I’m @PrakritiRawal
     
     Complemented by my recent education and hands-on projects in data analytics, with a strong background in recruitment and management,
     I honed skills such as data-driven decision-making, and communication, which are crucial in data analysis roles.
